@@ -1,0 +1,1 @@
+# Gdzie-doda-ten-kod-maszynowy.
